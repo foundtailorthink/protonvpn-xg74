@@ -4,7 +4,7 @@ Novo ProtonVPN Extensão | suporte P2P + interruptor de desligamento é o melhor
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/protonvpn-xg74/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/protonvpn-xg74/ https://foundtailorthink.github.io/protonvpn-xg74/) |
  |---------------------|----------------------:|
 
 
