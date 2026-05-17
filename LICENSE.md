@@ -1,4 +1,4 @@
-
+新ProtonVPN扩展 | P2P支持 + 杀死开关 是最佳 ProtonVPN 扩展，集成 P2P支持 和 杀死开关。安全且优化。
 
 
 
